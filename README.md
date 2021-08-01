@@ -1,8 +1,3 @@
-# WINDOWS RDP FREE WITH ACTION
-*uhh do you want a free rdp windows server 2019 :?*
-*OK it really easy with github :VVVVVVVV*
-*OK,Let's start*
-
 
 # *follow this step*
 
